@@ -1,3 +1,4 @@
+# Hi, I'm David 👋🏽😁
 Hi, I'm DaveTheWay1 because DaveTheWay was taken.
 haha.. anywho, I thought of dave the way because my friends call me dave; my name is David. 
 Next thing that came to mind was Pave the way and, so, here we are. 
