@@ -23,4 +23,4 @@ I'm a software engineer with a keen interest in backend development. I enjoy tac
 - 🌐 [LinkedIn](https://www.linkedin.com/in/davidrv1/)
 
 
-Feel free to explore my repositories and reach out if you want to collaborate!
+Feel free to explore my repositories and reach out if you want to collaborate!🐙
