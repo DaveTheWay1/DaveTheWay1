@@ -20,7 +20,7 @@ I'm a software engineer with a keen interest in backend development. I enjoy tac
 
 ## Get in Touch
 
-- 🌐 [yourwebsite.com]([http://yourwebsite.com](https://www.linkedin.com/in/davidrv1/))
+- 🌐 [LinkedIn](https://www.linkedin.com/in/davidrv1/)
 
 
 Feel free to explore my repositories and reach out if you want to collaborate!
